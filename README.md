@@ -1,2 +1,2 @@
-# AndreyNovoselov66rus.github.io
+# Андрей Новоселов
 Мой первый сайт
